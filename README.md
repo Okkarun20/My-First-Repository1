@@ -8,4 +8,5 @@ Romance Comedy
 #### Why I Like this Anime:
 I like the plot of the anime. It is fun to watch because of the quirky characters. They think of a plan to confess, and whoever confesses first loses. It is enjoyable to watch, and I laughed in the scene where they demonstrated their tactics and failed. I like the last episode of the anime, in which both parties confess their love at the clock tower. Sometimes, I rewatch the whole anime; it never gets me bored.
 ##### Kaguya-sama Love is War has 3 seasons
-each seasons have 12 episodes and has an ova.
+each season has 12 episodes and has an ova.
+###### I recommend this anime to watch.
